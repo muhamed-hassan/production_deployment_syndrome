@@ -1,4 +1,4 @@
-#### Please visit the wiki for more fun real fact : ( https://github.com/muhamed-hassan/production_deployment_syndrome/wiki
+#### Please visit the wiki for more fun real fact 😞 https://github.com/muhamed-hassan/production_deployment_syndrome/wiki
 
 ***
 
