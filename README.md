@@ -8,3 +8,10 @@
 
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/toys_everywhere_similarity.jpg)
 
+***
+***
+***
+
+💪 🙏 🙌 👌 👨‍🎓 👩‍🎓 👨‍👨‍👧‍👦 👍
+![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/strong_kids.jpg)
+
