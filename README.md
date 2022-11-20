@@ -7,6 +7,9 @@
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful target to the society**
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/fast_furious_similarity.png)
 
+![image](https://user-images.githubusercontent.com/17825804/202891891-dbb5fa68-f559-4701-a2d7-2d4d9f750701.png)
+
+
 ***
 
 ## Wrong habit: Ignorance, Extremism, Terrorism, Criminality ☠
