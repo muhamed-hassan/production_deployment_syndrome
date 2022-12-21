@@ -4,7 +4,7 @@
 
 ***
 
-## Wrong habit: Unplanned things ☠
+## `Wrong habit:` Unplanned things ☠
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/fast_furious_similarity.png)
@@ -14,14 +14,14 @@
 
 ***
 
-## Wrong habit: Ignorance, Extremism, Terrorism, Criminality ☠
+## `Wrong habit:` Ignorance, Extremism, Terrorism, Criminality ☠
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/toys_everywhere_similarity.jpg)
 
 ***
 
-## Wrong habit: Lack of education without reusing information technology thories from universities worldwide ☠
+## `Wrong habit:` Lack of education without reusing information technology thories from universities worldwide ☠
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/crying-kids-due-to-lack-of-education.jpg)
