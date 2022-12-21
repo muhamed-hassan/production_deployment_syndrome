@@ -1,4 +1,6 @@
-#### Please visit the wiki for more fun real fact 😞 https://github.com/muhamed-hassan/production_deployment_syndrome/wiki
+#### Please visit the wiki for more fun real facts 😞 https://github.com/muhamed-hassan/production_deployment_syndrome/wiki
+
+[**`For your information Syndrome is a medical idiom`**](https://en.wikipedia.org/wiki/Syndrome)
 
 ***
 
