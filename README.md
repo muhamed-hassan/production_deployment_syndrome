@@ -14,7 +14,7 @@
 
 ***
 
-## `Wrong habit:` Ignorance, Extremism, Terrorism, Criminality ☠
+## `Wrong habit:` [Ignorance](https://en.wikipedia.org/wiki/Ignorance), [Extremism](https://en.wikipedia.org/wiki/Extremism), [Terrorism](https://en.wikipedia.org/wiki/Terrorism), [Criminality](https://en.wikipedia.org/wiki/Crime) ☠
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/toys_everywhere_similarity.jpg)
