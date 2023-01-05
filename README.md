@@ -1,6 +1,6 @@
 #### Please visit the wiki for more fun real facts 😞 https://github.com/muhamed-hassan/production_deployment_syndrome/wiki
 
-[**`FYI: Syndrome is a medical idiom`**](https://en.wikipedia.org/wiki/Syndrome)
+**`FYI:`**[**Syndrome is a medical idiom**](https://en.wikipedia.org/wiki/Syndrome)
 
 ***
 
