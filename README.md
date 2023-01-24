@@ -11,13 +11,12 @@
 
 ![image](https://user-images.githubusercontent.com/17825804/202891926-612b9e13-e76c-46ee-9a8c-cfc722b5886b.png)
 
-
 ***
 
 ## `Wrong habit:` [Ignorance](https://en.wikipedia.org/wiki/Ignorance), [Extremism](https://en.wikipedia.org/wiki/Extremism), [Terrorism](https://en.wikipedia.org/wiki/Terrorism), [Criminality](https://en.wikipedia.org/wiki/Crime) ☠
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
-![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/toys_everywhere_similarity.jpg)
+![X-X-Everywhere](https://user-images.githubusercontent.com/17825804/214254433-935b5a72-b177-420f-895a-d1be9c904255.jpg)
 
 ***
 
