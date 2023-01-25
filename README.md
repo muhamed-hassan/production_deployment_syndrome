@@ -22,7 +22,7 @@
 
 ## `Wrong habit:` Lack of education without reusing information technology thories from universities worldwide ☠
 
-**🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
+**🏴‍☠️ [Pirates (mafia)](https://en.wikipedia.org/wiki/Uncontacted_peoples) in real life AKA [savage people](https://en.wikipedia.org/wiki/Uncontacted_peoples) who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/crying-kids-due-to-lack-of-education.jpg)
 
 ***
