@@ -4,7 +4,7 @@
 
 ***
 
-## `Wrong habit:` Unplanned things ☠
+## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): Unplanned things ☠
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/fast_furious_similarity.png)
@@ -13,14 +13,14 @@
 
 ***
 
-## `Wrong habit:` [Ignorance](https://en.wikipedia.org/wiki/Ignorance), [Extremism](https://en.wikipedia.org/wiki/Extremism), [Terrorism](https://en.wikipedia.org/wiki/Terrorism), [Criminality](https://en.wikipedia.org/wiki/Crime) ☠
+## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): [Ignorance](https://en.wikipedia.org/wiki/Ignorance), [Extremism](https://en.wikipedia.org/wiki/Extremism), [Terrorism](https://en.wikipedia.org/wiki/Terrorism), [Criminality](https://en.wikipedia.org/wiki/Crime) ☠
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![X-X-Everywhere](https://user-images.githubusercontent.com/17825804/214254433-935b5a72-b177-420f-895a-d1be9c904255.jpg)
 
 ***
 
-## `Wrong habit:` Lack of education without reusing information technology thories from universities worldwide ☠
+## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): Lack of education without reusing information technology thories from universities worldwide ☠
 
 **🏴‍☠️ [Pirates (mafia)](https://en.wikipedia.org/wiki/Uncontacted_peoples) in [real life](https://en.wikipedia.org/wiki/Earth) AKA [savage people](https://en.wikipedia.org/wiki/Uncontacted_peoples) who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/crying-kids-due-to-lack-of-education.jpg)
