@@ -20,6 +20,8 @@
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![X-X-Everywhere](https://user-images.githubusercontent.com/17825804/214254433-935b5a72-b177-420f-895a-d1be9c904255.jpg)
 
+[**Cartoon Reference 👽 👾 🤖 🚀 🛰 📡 🔭 🌌 ☄ 🛸**](https://en.wikipedia.org/wiki/Buzz_Lightyear)
+
 ***
 
 ## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): Lack of education without reusing information technology thories from universities worldwide ☠
