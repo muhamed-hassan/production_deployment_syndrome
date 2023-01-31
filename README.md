@@ -20,7 +20,7 @@
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![X-X-Everywhere](https://user-images.githubusercontent.com/17825804/214254433-935b5a72-b177-420f-895a-d1be9c904255.jpg)
 
-[**Cartoon Reference 👽 👾 🤖 🚀 🛰 📡 🔭 🌌 ☄ 🛸**](https://en.wikipedia.org/wiki/Buzz_Lightyear)
+[**Cartoon Reference 👽 👾 👨‍🚀 🤖 🚀 🛰 📡 🔭 🌌 ☄ 🛸**](https://en.wikipedia.org/wiki/Buzz_Lightyear)
 
 ***
 
@@ -30,6 +30,8 @@
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/crying-kids-due-to-lack-of-education.jpg)
 
 ![242968](https://user-images.githubusercontent.com/17825804/214492444-6f5f2838-2649-4179-a6e5-e686e3caf47d.jpg)
+
+[**Cartoon Reference 👾 🍭 🍖 🎃 🎮 🕹 🎠**](https://en.wikipedia.org/wiki/Monsters,_Inc.)
 
 ***
 ***
