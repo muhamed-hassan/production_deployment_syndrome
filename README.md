@@ -37,7 +37,7 @@
 ***
 ***
 
-# 👨‍👩‍👦‍👦 Legal stable families produces civilized educated people => 👨‍🎓 👩‍🎓 👍 🙏 🙌 💪 👌
+# [👨‍👩‍👦‍👦 Legal stable families produces civilized educated people](https://en.wikipedia.org/wiki/Family) => [👨‍🎓 👩‍🎓 👍 🙏 🙌 💪 👌](https://en.wikipedia.org/wiki/University)
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/strong_kids.jpg)
 
 Just teach them using interesting ways using [lego cubes](https://en.wikipedia.org/wiki/Lego) or somthing similar in order to understand those kinds of sciences well and how they can benefit from them in real life then give them a lot of sweets which divided into:
