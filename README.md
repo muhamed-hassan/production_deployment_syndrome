@@ -19,7 +19,7 @@
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 
-[`2arashanat (crazy mothers in job market and their fellows 🤐 🤓 😾)`](https://en.wikipedia.org/wiki/Joker_(character))` bull shit 💩 🤪 🤡 🏳️‍🌈 🍾 🥦 🗿 everywhere OOPS !!! - On the move to bring those mother fuckers soon 💪`
+[`2arashanat (crazy mothers in job market and their fellows 🤐 🤓 😾)`](https://en.wikipedia.org/wiki/Joker_(character)) [`bull shit`](https://en.wikipedia.org/wiki/Immature_personality_disorder) `💩 🤪 🤡 🏳️‍🌈 🍾 🥦 🗿 everywhere OOPS !!! - On the move to bring those mother fuckers soon 💪`
 
 ![X-X-Everywhere](https://user-images.githubusercontent.com/17825804/214254433-935b5a72-b177-420f-895a-d1be9c904255.jpg)
 
