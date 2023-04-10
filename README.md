@@ -48,5 +48,5 @@ Just teach them using interesting ways using [lego cubes](https://en.wikipedia.o
 
 [**`Keep safe`** 🛡 😁](https://en.wikipedia.org/wiki/Social_distancing)
 - Always teach yourself to have a stable healthy boundaries with others for long term productive [networking](https://en.wikipedia.org/wiki/Business_networking) and healthy relationships for your [mental health](https://en.wikipedia.org/wiki/Mental_health).
-- [Guideline to professionalism at workplace.](Professionalism)
+- [Guideline to professionalism at workplace.](https://www.linkedin.com/pulse/how-professional-your-career-whether-youre-working-hassan-eg-/)
 
