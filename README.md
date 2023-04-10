@@ -13,8 +13,6 @@
 
 ![image](https://user-images.githubusercontent.com/17825804/202891926-612b9e13-e76c-46ee-9a8c-cfc722b5886b.png)
 
-[**Cartoon Reference 🤣 😹 🐭**](https://en.wikipedia.org/wiki/Tom_and_Jerry)
-
 ***
 
 ## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): [Ignorance](https://en.wikipedia.org/wiki/Ignorance), [Extremism](https://en.wikipedia.org/wiki/Extremism), [Terrorism](https://en.wikipedia.org/wiki/Terrorism), [Criminality](https://en.wikipedia.org/wiki/Crime), [Workplace Bullying](https://en.wikipedia.org/wiki/Workplace_bullying) ☠
@@ -25,8 +23,6 @@
 
 ![X-X-Everywhere](https://user-images.githubusercontent.com/17825804/214254433-935b5a72-b177-420f-895a-d1be9c904255.jpg)
 
-[**Cartoon Reference 👽 👾 👨‍🚀 🤖 🚀 🛰 📡 🔭 🌌 ☄ 🛸**](https://en.wikipedia.org/wiki/Buzz_Lightyear)
-
 ***
 
 ## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): Lack of education without reusing information technology thories from universities worldwide ☠
@@ -35,8 +31,6 @@
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/crying-kids-due-to-lack-of-education.jpg)
 
 ![242968](https://user-images.githubusercontent.com/17825804/214492444-6f5f2838-2649-4179-a6e5-e686e3caf47d.jpg)
-
-[**Cartoon Reference 👾 🍭 🍖 🎃 🎮 🕹 🎠**](https://en.wikipedia.org/wiki/Monsters,_Inc.)
 
 ***
 ***
