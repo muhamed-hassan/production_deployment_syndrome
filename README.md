@@ -50,7 +50,7 @@ Just teach them using interesting ways using [lego cubes](https://en.wikipedia.o
 * [Fruits 🍇 🍉 🍌 🍍 🍎 🍏 🍐 🍑 🍒 🍓](https://en.wikipedia.org/wiki/Fruit) 
 * [Deserts 🍪 🍩 🎂 🍰 🍫 🍬 🍮](https://en.wikipedia.org/wiki/Dessert) 
 
-[🧠](https://en.wikipedia.org/wiki/Human_brain) 💪 as a reward, then teach them how to fuck/punish/report fugget terrorirsts/criminals in this industry to the #security_authorities 🕵 👮 🚔 🚨 so they can take care of them and vanish their bodies later due to their terrorism affect on our socities.
+[🧠](https://en.wikipedia.org/wiki/Human_brain) 💪 as a reward, then teach them how to fuck/punish/report fugget terrorirsts/criminals in this [industry](https://www.youtube.com/watch?v=V0JIjOXqdq4) to the #security_authorities 🕵 👮 🚔 🚨 so they can take care of them and vanish their bodies later due to their terrorism affect on our socities.
 
 [**`Keep safe`** 🛡 😁](https://en.wikipedia.org/wiki/Social_distancing)
 - Always teach yourself to have a stable healthy boundaries with others for long term productive [networking](https://en.wikipedia.org/wiki/Business_networking) and healthy relationships for your [mental health](https://en.wikipedia.org/wiki/Mental_health).
