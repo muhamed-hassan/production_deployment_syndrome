@@ -11,6 +11,8 @@
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 ![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/fast_furious_similarity.png)
 
+![the_joker__1_wallpaper___4k_by_concluvish_dfly4wp-fullview](https://user-images.githubusercontent.com/17825804/232861275-f57439d7-862f-450a-ae8d-2a68a7b4acf6.jpg)
+
 ![image](https://user-images.githubusercontent.com/17825804/202891926-612b9e13-e76c-46ee-9a8c-cfc722b5886b.png)
 
 ***
