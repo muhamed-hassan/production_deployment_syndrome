@@ -13,7 +13,7 @@
 
 ![the_joker__1_wallpaper___4k_by_concluvish_dfly4wp-fullview](https://user-images.githubusercontent.com/17825804/232861275-f57439d7-862f-450a-ae8d-2a68a7b4acf6.jpg)
 
-![image](https://user-images.githubusercontent.com/17825804/202891926-612b9e13-e76c-46ee-9a8c-cfc722b5886b.png)
+![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b9632860-daa7-4f03-a87d-dd41d60dffbb)
 
 ***
 
