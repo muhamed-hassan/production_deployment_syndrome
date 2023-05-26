@@ -37,7 +37,8 @@ So please be thankful to GOD (ALLAH) that we don't have our cars or bank account
 ## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): Lack of education without reusing information technology thories from universities worldwide ☠
 
 **🏴‍☠️ [Pirates (mafia)](https://en.wikipedia.org/wiki/Uncontacted_peoples) in [real life](https://en.wikipedia.org/wiki/Earth) AKA [savage people](https://en.wikipedia.org/wiki/Uncontacted_peoples) who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
-![](https://github.com/muhamed-hassan/production_deployment_syndrome/blob/master/comics/crying-kids-due-to-lack-of-education.jpg)
+
+![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b36115d8-8e60-417d-a04c-2fcc65381416)
 
 ![242968](https://user-images.githubusercontent.com/17825804/214492444-6f5f2838-2649-4179-a6e5-e686e3caf47d.jpg)
 
