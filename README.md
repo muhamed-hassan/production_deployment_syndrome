@@ -12,9 +12,9 @@
 
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/9628dcb5-117a-4a79-b59c-38633026ffa5)
 
-![creepy-clown-face-on-white-background-free-vector](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/6b2102b6-4bc7-42f7-adb3-a97d34e45d9e)
-
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b9632860-daa7-4f03-a87d-dd41d60dffbb)
+
+![creepy-clown-face-on-white-background-free-vector](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/6b2102b6-4bc7-42f7-adb3-a97d34e45d9e)
 
 ***
 
