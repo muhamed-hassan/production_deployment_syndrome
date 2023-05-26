@@ -26,6 +26,10 @@
 
 [`2arashanat (crazy mothers in job market and their)`](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki/Bad-examples-of-parents) [`fellows 🤐 🤓 😾`](https://en.wikipedia.org/wiki/Prostitution) [`bull shit`](https://en.wikipedia.org/wiki/Immature_personality_disorder) `💩 🤪 🤡 🏳️‍🌈 🍾 🥦 🗿 everywhere OOPS !!! - On the move to bring those mother fuckers soon 💪`
 
+Terror-Toys from uneducated-people who are not applying information-technology theories which are given via legal-universities worldwide are everywhere.
+
+So please be thankful to GOD (ALLAH) that we don't have our cars or bank accounts exploded instantaneously without our permission.
+
 ![X-X-Everywhere](https://user-images.githubusercontent.com/17825804/214254433-935b5a72-b177-420f-895a-d1be9c904255.jpg)
 
 ***
