@@ -30,7 +30,7 @@ Terror-Toys from uneducated-people who are not applying information-technology t
 
 So please be thankful to GOD (ALLAH) that we don't have our cars or bank accounts exploded instantaneously without our permission.
 
-![X-X-Everywhere](https://user-images.githubusercontent.com/17825804/214254433-935b5a72-b177-420f-895a-d1be9c904255.jpg)
+![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/5837bee8-83d5-434c-9fb5-575842a17a42)
 
 ***
 
