@@ -38,7 +38,7 @@ So please be thankful to GOD (ALLAH) that we don't have our cars or bank account
 
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b36115d8-8e60-417d-a04c-2fcc65381416)
 
-![242968](https://user-images.githubusercontent.com/17825804/214492444-6f5f2838-2649-4179-a6e5-e686e3caf47d.jpg)
+![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b7cd1a0d-ce79-4e6f-b548-b70ec9ef469f)
 
 ***
 ***
