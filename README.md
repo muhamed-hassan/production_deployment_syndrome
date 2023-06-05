@@ -61,3 +61,4 @@ Just teach them using interesting ways using [lego cubes](https://en.wikipedia.o
 - [How to set healthy boundaries to protect yourself without crossing the limits ?](https://github.com/muhamed-hassan/self-care/wiki/How-to-set-healthy-boundaries-to-protect-yourself-without-crossing-the-limits%3F)
 - [Guideline to professionalism at workplace.](https://www.linkedin.com/pulse/how-professional-your-career-whether-youre-working-hassan-eg-/)
 
+[wake up, kids](https://youtu.be/34jjrqiezm8)
