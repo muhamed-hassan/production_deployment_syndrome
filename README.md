@@ -11,7 +11,7 @@
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 
 ### Prodution deployment syndorm in short:
-* متلازمة العيال الصغيرة اللى بتكفى على وشها وهى طالعة على البرودكشن من غير ما تعمل السوفتير أصلا،  بيخشوا بكرشهم فى الحيطة
+* متلازمة-العيال-الصغيرة اللى بتكفى على وشها وهى طالعة على البرودكشن من غير ما تعمل السوفتير أصلا،  بيخشوا بكرشهم فى الحيطة
 
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/9628dcb5-117a-4a79-b59c-38633026ffa5)
 
