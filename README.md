@@ -10,7 +10,7 @@
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 
-### Prodution deployment syndorm in short `immature-baby-employees👶-syndorme`: 
+### Prodution deployment syndorm in short [`immature-baby-employees👶-syndorme`](https://youtu.be/oeNWgm_tFV4): 
 متلازمة-العيال-الصغيرة اللى بتكفى على وشها وهى طالعة على البرودكشن من غير ما تعمل السوفتير أصلا،  بيخشوا بكرشهم فى الحيطة
 
 فيه عيال صغيرة بشهادات بكالوريوس مزورة جايين يتفسحوا فى الأشغال المشبوهة ديه اللى امهم جايبهالهم بلبس العيد عالميا
