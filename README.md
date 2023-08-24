@@ -15,6 +15,8 @@
 
 فيه عيال صغيرة بشهادات بكالوريوس مزورة جايين يتفسحوا فى الأشغال المشبوهة ديه اللى امهم جايبهالهم بلبس العيد عالميا
 
+الدادة بتيجي تروح العيال الصغيرة بعد لما تغيرلها البامبرز ديها لأمها اللى مشافتش بربع دولار تربية فى اخر يوم الحضانة
+
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/9628dcb5-117a-4a79-b59c-38633026ffa5)
 
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b9632860-daa7-4f03-a87d-dd41d60dffbb)
