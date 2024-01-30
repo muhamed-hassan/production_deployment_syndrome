@@ -49,6 +49,8 @@ So please be thankful to GOD (ALLAH) that we don't have our cars or bank account
 
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b7cd1a0d-ce79-4e6f-b548-b70ec9ef469f)
 
+[**`So, why kids crying upon identification as global terrorists?`**](https://www.youtube.com/watch?v=xngZyouAivo) 
+
 ***
 ***
 ***
