@@ -6,7 +6,7 @@
 
 ***
 
-## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): [Unplanned things](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki/Expected-Package-comics) ☠
+## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): [Unplanned things ☠](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki/Expected-Package-comics)
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 
@@ -27,7 +27,7 @@
 
 ***
 
-## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): [Ignorance](https://en.wikipedia.org/wiki/Ignorance), [Extremism](https://en.wikipedia.org/wiki/Extremism), [Terrorism](https://en.wikipedia.org/wiki/Terrorism), [Criminality](https://en.wikipedia.org/wiki/Crime), [Workplace Bullying](https://en.wikipedia.org/wiki/Workplace_bullying) ☠
+## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): [Ignorance ☠](https://en.wikipedia.org/wiki/Ignorance), [Extremism ☠](https://en.wikipedia.org/wiki/Extremism), [Terrorism ☠](https://en.wikipedia.org/wiki/Terrorism), [Criminality ☠](https://en.wikipedia.org/wiki/Crime), [Workplace Bullying ☠](https://en.wikipedia.org/wiki/Workplace_bullying), [Racism ☠](https://en.wikipedia.org/wiki/Racism)
 
 **🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 
