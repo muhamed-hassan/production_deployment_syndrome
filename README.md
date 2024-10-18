@@ -41,7 +41,7 @@ So please be thankful to GOD (ALLAH) that we don't have our cars or bank account
 
 ***
 
-## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): Lack of education without reusing information technology thories from universities worldwide ☠
+## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): Lack of education without reusing information technology theories from universities worldwide ☠
 
 **🏴‍☠️ [Pirates (mafia)](https://en.wikipedia.org/wiki/Uncontacted_peoples) in [real life](https://en.wikipedia.org/wiki/Earth) AKA [savage people](https://en.wikipedia.org/wiki/Uncontacted_peoples) who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 
