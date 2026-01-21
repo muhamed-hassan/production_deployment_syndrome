@@ -4,13 +4,18 @@
 
 **`FYI:`**[**Syndrome is a medical idiom**](https://en.wikipedia.org/wiki/Syndrome)
 
+prodution-deployment-syndrome in short [`immature-baby-employees👶-syndorme`](https://www.youtube.com/watch?v=XqZsoesa55w) 
+
 ***
 
-## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): [Unplanned things ☠](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki/Expected-Package-comics) as [feminism phenomena 🤡 🏳️‍🌈 💘 😻 🐷 💋 👎 🖕 ❌](https://github.com/muhamed-hassan/self-care/wiki/Rumors-of-countryside-savage-dogs-about-menstrual) 
+# [Wrong habits](https://en.wikipedia.org/wiki/Immature_personality_disorder): 
 
-**🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
+## [Unplanned things ☠](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki/Expected-Package-comics) as [feminism phenomena 🤡 🏳️‍🌈 💘 😻 🐷 💋 👎 🖕 ❌](https://github.com/muhamed-hassan/self-care/wiki/Rumors-of-countryside-savage-dogs-about-menstrual), [Ignorance ☠](https://en.wikipedia.org/wiki/Ignorance), [Extremism ☠](https://en.wikipedia.org/wiki/Extremism), [Terrorism ☠](https://en.wikipedia.org/wiki/Terrorism), [Criminality ☠](https://en.wikipedia.org/wiki/Crime), [Workplace Bullying ☠](https://en.wikipedia.org/wiki/Workplace_bullying), [Racism ☠](https://en.wikipedia.org/wiki/Racism)
 
-### Prodution deployment syndorm in short [`immature-baby-employees👶-syndorme`](https://youtu.be/oeNWgm_tFV4): 
+🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society.
+
+The global impact of lack of education that results from not using the information technology theories from universities worldwide ☠.
+
 متلازمة-العيال-الصغيرة اللى بتكفى على وشها وهى طالعة على البرودكشن من غير ما تعمل السوفتير أصلا،  بيخشوا بكرشهم فى الحيطة
 
 فيه عيال صغيرة بشهادات بكالوريوس مزورة جايين يتفسحوا فى الأشغال المشبوهة ديه اللى امهم جايبهالهم بلبس العيد عالميا
@@ -23,13 +28,7 @@
 
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b9632860-daa7-4f03-a87d-dd41d60dffbb)
 
-![creepy-clown-face-on-white-background-free-vector](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/6b2102b6-4bc7-42f7-adb3-a97d34e45d9e)
-
 ***
-
-## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): [Ignorance ☠](https://en.wikipedia.org/wiki/Ignorance), [Extremism ☠](https://en.wikipedia.org/wiki/Extremism), [Terrorism ☠](https://en.wikipedia.org/wiki/Terrorism), [Criminality ☠](https://en.wikipedia.org/wiki/Crime), [Workplace Bullying ☠](https://en.wikipedia.org/wiki/Workplace_bullying), [Racism ☠](https://en.wikipedia.org/wiki/Racism)
-
-**🏴‍☠️ Pirates (mafia) in real life AKA savage people who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 
 [`2arashanat (crazy mothers in job market and their`](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki/Bad-examples-of-parents) [`fellows 🤐 🤓 😾)`](https://en.wikipedia.org/wiki/Prostitution) [`bull shit`](https://en.wikipedia.org/wiki/Immature_personality_disorder) `💩 🤪 🤡 🏳️‍🌈 🍾 🥦 🗿 everywhere OOPS !!! - On the move to bring those mother fuckers soon 💪`
 
@@ -40,10 +39,6 @@ So please be thankful to GOD (ALLAH) that we don't have our cars or bank account
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/5837bee8-83d5-434c-9fb5-575842a17a42)
 
 ***
-
-## [`Wrong habit`](https://en.wikipedia.org/wiki/Immature_personality_disorder): Lack of education without reusing information technology theories from universities worldwide ☠
-
-**🏴‍☠️ [Pirates (mafia)](https://en.wikipedia.org/wiki/Uncontacted_peoples) in [real life](https://en.wikipedia.org/wiki/Earth) AKA [savage people](https://en.wikipedia.org/wiki/Uncontacted_peoples) who are not subject yet to legal governing systems worldwide however they're get eliminated gradually upon identification as a harmful targets to the society**
 
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b36115d8-8e60-417d-a04c-2fcc65381416)
 
