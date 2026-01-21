@@ -4,7 +4,7 @@
 
 **`FYI:`**[**Syndrome is a medical idiom**](https://en.wikipedia.org/wiki/Syndrome)
 
-prodution-deployment-syndrome in short [`immature-baby-employees👶-syndorme`](https://www.youtube.com/watch?v=XqZsoesa55w) 
+prodution-deployment-syndrome in short [`immature-baby-employees👶-syndrome`](https://www.youtube.com/watch?v=XqZsoesa55w) 
 
 ***
 
