@@ -28,7 +28,7 @@ The global impact of lack of education that results from not using the informati
 
 ***
 
-[`2arashanat (crazy mothers in job market and their`](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki/Bad-examples-of-parents) `fellows 🤐 🤓 😾)` [`bull shit`](https://en.wikipedia.org/wiki/Immature_personality_disorder) `💩 🤪 🤡 🏳️‍🌈 🍾 🥦 everywhere - OOPS !!! - On the move to bring those mother fuckers soon 💪`
+[`2arashanat (crazy single mothers in job market and their`](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki/Bad-examples-of-parents) `fellows 🤐 🤓 😾)` [`bull shit`](https://en.wikipedia.org/wiki/Immature_personality_disorder) `💩 🤪 🤡 🏳️‍🌈 🍾 🥦 everywhere - OOPS !!! - On the move to bring those mother fuckers soon 💪`
 
 Terror-Toys from uneducated-people who are not applying information-technology theories which are given via legal-universities worldwide are everywhere.
 
