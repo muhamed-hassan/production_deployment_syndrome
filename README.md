@@ -53,8 +53,8 @@ So, why kids are crying upon marking them as a global terrorists?
 
 Just teach them using interesting ways using [lego cubes](https://en.wikipedia.org/wiki/Lego) or somthing similar in order to understand those kinds of sciences well and how they can benefit from them in real life then give them a lot of sweets which divided into:
 
-* [Fruits 🍇 🍉 🍌 🍍 🍎 🍏 🍐 🍑 🍒 🍓](https://en.wikipedia.org/wiki/Fruit) 
-* [Deserts 🍪 🍩 🎂 🍰 🍫 🍬 🍮](https://en.wikipedia.org/wiki/Dessert) 
+* [Fruits 🍇 🍉 🍌 🍍 🍎 🍏 🍐 🍑 🍒 🍓](https://github.com/muhamed-hassan/reference-in-cooking/wiki/Suggested-fruits) 
+* [Deserts 🍪 🍩 🎂 🍰 🍫 🍬 🍮](https://github.com/muhamed-hassan/reference-in-cooking/wiki/Recommended-deserts) 
 
 [🧠](https://en.wikipedia.org/wiki/Human_brain) 💪 as a reward, then teach them how to fuck/punish/report fugget terrorirsts/criminals in this [industry](https://www.youtube.com/watch?v=V0JIjOXqdq4) to the #security_authorities 🕵 👮 🚔 🚨 so they can take care of them and vanish their bodies later due to their terrorism affect on our socities.
 
