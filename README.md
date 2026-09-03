@@ -8,6 +8,14 @@ prodution-deployment-syndrome in short [`immature-baby-employees👶-syndrome`](
 
 ***
 
+![Daydreamer-models-holding-bag-7609__02901](https://github.com/user-attachments/assets/e1517103-c878-4936-878d-44436674581c)
+
+![Model_E_N_BellaDiaper_Group_Closeup__90317](https://github.com/user-attachments/assets/0f8960f4-9e86-43f1-9b65-62b9ae69a417)
+
+![giphy](https://github.com/user-attachments/assets/bb3f68df-7704-45c5-8bd2-02036c42fad3)
+
+![giphy (1)](https://github.com/user-attachments/assets/f5ad0505-fdf2-47e8-b239-f0e123d92fd7)
+
 # [Wrong habits](https://en.wikipedia.org/wiki/Immature_personality_disorder): 
 
 ## [Unplanned things ☠](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki/Expected-Package-comics) as [feminism phenomena 🤡 🏳️‍🌈 💘 😻 🐷 💋 👎 🖕 ❌](https://github.com/muhamed-hassan/self-care/wiki/Rumors-of-countryside-savage-dogs-about-menstrual), [Ignorance ☠](https://en.wikipedia.org/wiki/Ignorance), [Extremism ☠](https://en.wikipedia.org/wiki/Extremism), [Terrorism ☠](https://en.wikipedia.org/wiki/Terrorism), [Criminality ☠](https://en.wikipedia.org/wiki/Crime), [Workplace Bullying ☠](https://en.wikipedia.org/wiki/Workplace_bullying), [Racism ☠](https://en.wikipedia.org/wiki/Racism)
