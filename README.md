@@ -30,9 +30,9 @@ The global impact of lack of education that results from not using the informati
 
 الدادة بتيجي تروح العيال الصغيرة بعد لما تغيرلها البامبرز ديها لأمها اللى مشافتش بربع دولار تربية فى اخر يوم الحضانة
 
-تعتبر شهادة التخرج مزورة 😻 🤡 🏳️‍🌈 عالميا ( أى دفع فيها رشوة للحصول عليها ) - إذا لم يستطع الخريج القراءة و الكتابة بشكل متحضر بلغته الأم أولا ثم عدم إجادة التخصص الأكاديمى و عدم القدرة على العمل به فى سوق العمل سواء فى القطاع العسكرى أو المدنى.
+تعتبر شهادة التخرج مزورة 😻 🤡 🏳️‍🌈 عالميا ( أى دفع فيها رشوة للحصول عليها ), إذا لم يستطع / تستطع - الخريج / الخريجة القراءة و الكتابة بشكل متحضر بلغته / بلغتها الأم أولا ثم عدم إجادة التخصص الأكاديمى و عدم القدرة على العمل به فى سوق العمل سواء فى القطاع العسكرى أو المدنى. و يمكن الإستنتاج من تلك الأدلة أن الشخص له / لها إنتماء لجماعات إرهابية ☠ و يتصف / تتصف بسلوك إجرامى ☠.
 
-The graduation certificate is considered a fake one 😻 🤡 🏳️‍🌈 globally ( a bribe has been paid to get it ) - if the graduate could not read or write properly using his / her native language, then the lack of proficiency in the academic specialization and the inability to work in the labor market using it, whether in the military or civilian sector.
+The graduation certificate is considered a fake one 😻 🤡 🏳️‍🌈 globally ( a bribe has been paid to get it ) - if the graduate could not read or write properly using his / her native language, then the lack of proficiency in the academic specialization and the inability to work in the labor market using it, whether in the military or civilian sector. We can conclude from that facts, that the person is belonging to terror groups ☠ and he / she has a criminal attitude ☠.
 
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/9628dcb5-117a-4a79-b59c-38633026ffa5)
 
