@@ -30,6 +30,10 @@ The global impact of lack of education that results from not using the informati
 
 الدادة بتيجي تروح العيال الصغيرة بعد لما تغيرلها البامبرز ديها لأمها اللى مشافتش بربع دولار تربية فى اخر يوم الحضانة
 
+تعتبر شهادة التخرج مزورة 😻 🤡 🏳️‍🌈 عالميا ( أى دفع فيها رشوة للحصول عليها ) - إذا لم يستطع الخريج القراءة و الكتابة بشكل متحضر بلغته الأم أولا ثم عدم إجادة التخصص الأكاديمى و عدم القدرة على العمل به فى سوق العمل سواء فى القطاع العسكرى أو المدنى.
+
+The graduation certificate is considered a fake one 😻 🤡 🏳️‍🌈 globally ( a bribe has been paid to get it ) - if the graduate could not read or write properly using his / her native language, then the lack of proficiency in the academic specialization and the inability to work in the labor market using it, whether in the military or civilian sector.
+
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/9628dcb5-117a-4a79-b59c-38633026ffa5)
 
 ![giphy](https://github.com/muhamed-hassan/production_deployment_syndrome/assets/17825804/b9632860-daa7-4f03-a87d-dd41d60dffbb)
